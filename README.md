@@ -5,7 +5,9 @@
 
 #
 
-wip
+<p align="center">
+$\color{#ffd742}{"WELCOME!!~I'm~Teppy!!~Don't~worry~where~you~should~sleep~for~the~night,~I've~prepared~for~you~and~some~other~guests!"}$
+</p>
 
 #
 
@@ -15,6 +17,6 @@ wip
 
 #
 
-zzz
+wip, this is taking a lot helpme i needto sleep zz
 
 #
