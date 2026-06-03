@@ -25,7 +25,7 @@ $\color{#ffd742}{"WELCOME!!~I'm~Teppy!!~Don't~worry~about~where~you~should~sleep
  Ⳋ᧙ . HAII!! I'm Heaven or Kururin, u can call me wathever u want!! (dont be rude okii
 
 ![k7ru](https://cdn.discordapp.com/emojis/1358397210085294080.webp?size=32)
-Ⳋ᧙ . I'm from Peru sooo I speak Spanish, my birthday it's on June 18th yayy!!
+Ⳋ᧙ . I'm from Peru (GMT-5) sooo I speak Spanish, my birthday it's on June 18th yayy!!
 
 ![nohicelatarea](https://cdn.discordapp.com/emojis/1302630775514206261.webp?size=32)
 Ⳋ᧙ . Alsoo I'm polysexual, demiaroace, transmasc and gay, I'm taken btww!! By a beautiful girl, I love her so much <33
