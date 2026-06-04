@@ -107,7 +107,7 @@ $\color{#ffd742}{"WELCOME!!~I'm~Teppy!!~Don't~worry~about~where~you~should~sleep
 Ⳋ᧙ . Umamusume: Pretty Derby
 
 ![idk](https://cdn.discordapp.com/emojis/1372131167624757258.webp?size=32)
-Ⳋ᧙ . And even more that Im lazy to mention it like Die Of Death, Geometry Dash or even Project Sekai, also I like Roblox in general and VideoGames
+Ⳋ᧙ . And even more that Im lazy to mention it like Die Of Death, Geometry Dash, Doki Doki Literature Club! or even Project Sekai, also I like Roblox in general and VideoGames
 
 
 </details>
