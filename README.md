@@ -70,7 +70,7 @@ $\color{#ffd742}{"WELCOME!!~I'm~Teppy!!~Don't~worry~about~where~you~should~sleep
 Ⳋ᧙ . Yunyun Syndrome!? Rhythm Psychosis  (I even have the game I SWEAR I'm not poor)
 
 ![ponalgoeningles](https://cdn.discordapp.com/emojis/1369417097368567970.webp?size=32)
-Ⳋ᧙ . Alien Stage
+Ⳋ᧙ . Alien Stage (left some time ago
 
 <img width="32" height="32" alt="image" src="https://github.com/user-attachments/assets/14ed6b2d-fbe8-4664-ab46-128a7ffc75f1" />
 Ⳋ᧙ . Bugbo
